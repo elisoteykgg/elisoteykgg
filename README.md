@@ -2,6 +2,6 @@
 
 Elisa Lombardi 1A
 
-![https://images.app.goo.gl/VH5ibpFNHVMqrPMs5](link)
+[gif](https://images.app.goo.gl/VH5ibpFNHVMqrPMs5)
 
 [**borrachinha**](https://youtu.be/Ei36FWXmpJQ?si=90ijaqUKrzQFmqT1)
